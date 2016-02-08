@@ -1,1 +1,0 @@
-# spicemagic.github.io
